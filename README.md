@@ -1,1 +1,1 @@
-# BRIHT
+# BRIGHT
